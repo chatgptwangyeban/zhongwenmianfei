@@ -2,7 +2,7 @@
 
 ## 一、引言
 
-2025/10/8人工智能的快速发展，使得ChatGPT成为全球范围内最受欢迎的智能对话工具。它不仅能够进行自然语言交流，还能帮助用户写作、编程、学习和日常办公。对于国内用户来说，找到**ChatGPT中文免费版入口**，并通过**ChatGPT电脑网页版**直接使用，无疑是体验AI智能的最佳途径。
+2025/10/27人工智能的快速发展，使得ChatGPT成为全球范围内最受欢迎的智能对话工具。它不仅能够进行自然语言交流，还能帮助用户写作、编程、学习和日常办公。对于国内用户来说，找到**ChatGPT中文免费版入口**，并通过**ChatGPT电脑网页版**直接使用，无疑是体验AI智能的最佳途径。
 
 ---
 
@@ -40,7 +40,7 @@
 3. 即可立即与智能AI进行互动
 4. 支持电脑浏览器访问，体验稳定
 
-👉 官方入口：[http://www.xn--chatgpt-m43ki6uov8cfl3azt1e.com](http://www.xn--chatgpt-m43ki6uov8cfl3azt1e.com)
+👉 官方入口：[https://banana.dk82.com/chatgpt-guide.html](https://banana.dk82.com/chatgpt-guide.html)
 
 ---
 
